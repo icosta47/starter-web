@@ -21,3 +21,8 @@ this is before last
 Umeric moon phase granny square ari aster keffiyeh hoodie. Monstera bluesky thrifted forage bandcamp lumbersexual. Keytar aeropress nepo baby seitan chambray nineties. Stussy authentic carhartt, whatever lacto-ferment JOMO black trumpet retro bodega boys mezcal asymmetrical sound bath. TEST44
 
 this is last
+
+
+## Copyright
+
+addded new record
