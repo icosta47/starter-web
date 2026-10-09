@@ -3,7 +3,7 @@
 
 # TEAM
 
-    <name> -- <role> -- <twitter>
+    Konstantin O icosta@live.com @grimm44
 
 # THANKS
 
