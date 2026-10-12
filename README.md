@@ -27,4 +27,4 @@ this is last
 
 ## Copyright
 
-addded new record
+addded new record. all rights rservered.
