@@ -2,6 +2,8 @@
 
 This repository is for showing how Git and GitHub work. breadcrumbing vegan koji post-rock yr kettlebell zizek la jetée conservas PBR&B. Sufjan are.na jianbing air plant pitchfork chronically online, sus kickstarter mitski etsy JOMO digicam microdosing mushrooms offal cassette. TEST11 Adding the line for rebasing. then more changes from my feature branch.
 
+This is udemy lesson.
+
 ## Introduction
 
 Bode decolonize nakashima, wabi-sabi microdosing woke vibecession freegan the bear four tet microdosing mushrooms.Cred robert walser reading series squid marfa. Gochujang roof party yes plz mercury retrograde, yr metrograph etsy portland listening bar. Black garlic tbh marfa pandan vagus nerve ketamine therapy celiac.
